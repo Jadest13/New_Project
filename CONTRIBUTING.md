@@ -1,1 +1,1 @@
-jadest13x03@gmail.com
+rbgus2002@naver.com
