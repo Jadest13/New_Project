@@ -1,1 +1,1 @@
-jadest13x03@gmail.com
+jjongwon7@naver.com
