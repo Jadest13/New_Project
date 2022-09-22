@@ -1,1 +1,1 @@
-jadest13x03@gmail.com
+dltmdgh0904@naver.com
